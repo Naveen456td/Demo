@@ -1,3 +1,3 @@
 #chummaaa
 
-naveeeen
+naveeeen ai
